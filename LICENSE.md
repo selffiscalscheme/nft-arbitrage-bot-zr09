@@ -1,4 +1,4 @@
-# 
+# nft arbitrage bot professional Bot - snipe-list-management and royalty-calculator offers the most advanced nft arbitrage bot, with snipe-list-management and royalty-calculator.
 
 
 
